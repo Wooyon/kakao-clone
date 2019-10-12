@@ -1,5 +1,3 @@
 # kakao-clone
 
-hi i'm woo yong
-
-hello! seyoon!!
+all of these are suck!
